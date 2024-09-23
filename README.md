@@ -1,5 +1,5 @@
 - 👋 olá, sou o @Michel
-- 👀  
+- 👀 estou focado em pegar mestre no free fire  
 - 🌱 estou atualmente aprendendo a como construir uma casa no minecraft 
 - 💞️ procuro ajudar os bot do free fire 
 - 📫 como entrar em contato comigo: pegando seu celular e ligando neste numero +55 88 8120-4681
