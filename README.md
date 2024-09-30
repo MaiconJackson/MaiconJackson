@@ -10,4 +10,3 @@
 michel.silva.martins@escola.pr.gov.br
 
 ![](https://media.tenor.com/FX3lbld5m0UAAAAi/minecraft.gif)
-![](https://media1.tenor.com/m/VxGTo7l6zXYAAAAd/insano-pvp.gi)
